@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-💬 Wanna contact me? Discord: AutistFabio#2080
+💬 Wanna contact me? Discord: Faabiio
 
 
 ### Skills:
